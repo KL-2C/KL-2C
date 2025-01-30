@@ -1,7 +1,8 @@
-Francais, English, Deutsch 🔥
-
 ECE Paris -  Promo 2029 -
 
-Rire, bosser, boire et avancer dans la vie ⚜️⚜️⚜️
+# Moi et moi-même
 
-XP --> Python, C, Html/CSS 
+Rire, bosser, boire et avancer dans la vie 
+
+# XP 🦅
+https://img.shields.io/badge/-Python-3776AB?style=flat-square&logo=python&logoColor=white
