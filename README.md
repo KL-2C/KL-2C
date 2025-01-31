@@ -3,7 +3,7 @@ ECE Paris -  Promo 2029 -
 # ⫷ Me, Myself ? ⫸
 
 Devenir Ingé +  Bosser, Se moquer de tout, boire et avancer dans la vie 🔥
-Deutsch, Français, English ? Dutch is loading 
+🇫🇷 🇦🇹 🇨🇭 🇧🇪
 
 
 
