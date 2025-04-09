@@ -1,8 +1,7 @@
 ECE Paris -  Promo 2029 -
 
-# ⫷ Me, Myself ? ⫸
+#Hi
 
-Devenir Ingé +  Bosser, Se moquer de tout, boire et avancer dans la vie 🔥
 🇫🇷 🇦🇹 🇨🇭 🇧🇪
 
 
@@ -14,7 +13,7 @@ Devenir Ingé +  Bosser, Se moquer de tout, boire et avancer dans la vie 🔥
 ![Screenshot 2025-01-30 214614](https://github.com/user-attachments/assets/9123462f-f9a3-45d5-a7d2-8ab1e27f5b4f)
 - I can finally cook smth else than noodles ;))
 
-- Wanna play any game ? 
+
 
 
 
